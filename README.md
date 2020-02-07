@@ -1,0 +1,2 @@
+# DiyetinPrivacyPolicy
+Diyetin Privacy Policy
